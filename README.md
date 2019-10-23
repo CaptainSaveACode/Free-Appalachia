@@ -1,1 +1,1 @@
-# Free-Appalachia
+# Free Appalachia
